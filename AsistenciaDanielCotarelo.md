@@ -29,3 +29,5 @@
 ## Asistencia Daniel Cotarelo de hoy día 20/04/26
 
 ## Asistencia Daniel Cotarelo de hoy día 22/04/26
+
+## Asistencia Daniel Cotarelo de hoy día 27/04/26
